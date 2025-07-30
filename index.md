@@ -5,7 +5,7 @@ title: Home
 
 # 👋 Hi, I'm Vaishnavi Prabhushetty
 
-**SAP Application Developer | Supply Chain Engineer | Procurement Enthusiast**
+SAP Application Developer | Supply Chain Engineer | Procurement Enthusiast
 
 📍 Bengaluru, India  
 📧 vaishnavipsangolgi212@gmail.com  
