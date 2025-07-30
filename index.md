@@ -45,6 +45,6 @@ _Jun 2023 – Nov 2023_
 
 ---
 
-## 📄 📄 [Download My Resume](VAISHNAVI%20P%20SANGOLGI.PDF)
+## 📄 [Download My Resume](VAISHNAVI%20P%20SANGOLGI.pdf)
 
 
