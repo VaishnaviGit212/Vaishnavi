@@ -45,4 +45,5 @@ _Jun 2023 – Nov 2023_
 
 ---
 
-## 📄 [Download Resume](Vaishnavi_Resume.pdf)
+## 📄 [Download Resume](VAISHNAVI P SANGOLGI.PDF)
+
